@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @GiselleEsparrago
-- 👀 I’m interested in listening music, reading Wattpad, watching movies
+- 👀 I’m interested in listening music, reading Wattpad, watching movies, playing online games and ofcourse I'm interested to learn more about computer programming
 - 🌱 I’m currently learning in St Clare College
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
