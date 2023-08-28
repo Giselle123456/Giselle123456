@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Giselle Esparrago
+- 👋 Hi, I’m @GiselleEsparrago
 - 👀 I’m interested in listening music, reading Wattpad, watching movies
 - 🌱 I’m currently learning in St Clare College
 - 💞️ I’m looking to collaborate on ...
